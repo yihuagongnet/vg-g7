@@ -11,6 +11,14 @@ https://gtv2023.com
 ```
 # vg-g7 gtv2023最新域名网址：
 
+https://gtv2023.lat （2023.8.16更新）
+
+https://gtv2023.cfd （2023.8.16更新）
+ 
+https://gtv2023.space （2023.8.16更新）
+ 
+https://gtv2023.website （2023.8.16更新）
+
 https://gtv10.gay
 
 https://gtv11.gay
